@@ -15,6 +15,6 @@ Innovate at the intersection of legal tech, compliance, and startups.
 Machine Learning for compliance.
 Automation of regulatory processes.
 Legal Tech solutions for startups.
-I thrive in fast-paced environments and aim to bring value through flexibility and innovation. Let’s connect and create something amazing together! 💼📊💻
+I thrive in fast-paced environments and aim to bring value through flexibility and innovation. 
 
-Feel free to reach me at clara.jimenez.venegas@gmail.com or connect with me on LinkedIn. Let’s create something amazing together! 💼📊💻
+Feel free to reach me at clara.jimenez.venegas@gmail.com or connect with me on LinkedIn:linkedin.com/in/clarajimenez1/. Let’s create something amazing together! 💼📊💻

@@ -1,4 +1,4 @@
-#Hi, I'm Clara Jiménez! 👋
+Hi, I'm Clara Jiménez! 👋
 
 🚀 Lawyer | Compliance Officer | Data Analytics & Business Intelligence Enthusiast
 
